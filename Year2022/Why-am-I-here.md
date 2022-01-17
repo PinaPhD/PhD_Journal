@@ -20,8 +20,7 @@ and to attend trainings on how to do better research and to learn more about the
 - [ ] To interact with people from different races, cultures and religions. Having lived in Kigali, Rwanda for almost 3 years, I got to interact with people from all over Africa and it was interesting to 
 see how we are all connected despite our differences. Joining this project, I am able to interact with people with different social and academic backgrounds. I will get an opportunity to learn from them
 in different capacities as well as share my innovative, novel ideas with them (possibly through the different dissemination platforms available for us in this project 👍)
-- [ ] To live in a different continent. I have clocked several decades in Africa and would like to see the world from a whole different perspective. The Netherlands is ranked as one of the wealthiest first 
-world countries where people tend to be modest and their children, the happiest. Living among such people would be quite an adventure as their modesty and approach to life resounds with what I always envision
+- [ ] To live in a different continent. I have clocked several decades in Africa and would like to see the world from a whole different perspective. The Netherlands is ranked as the fourth wealthiest country where people tend to be modest and their children, the happiest. Living among such people would be quite an adventure as their modesty and approach to life resounds with what I always envision
 for my future self. 
 
 This is going to be one of the most important decades of my life. 
