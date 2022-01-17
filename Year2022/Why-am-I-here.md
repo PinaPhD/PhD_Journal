@@ -25,6 +25,7 @@ for my future self.
 
 This is going to be one of the most important decades of my life. 
 Now, I know most of you are already on the question: 
+
 *so, what next after your PhD?* 
 That lingers in my mind and it is something to think about at the beginning as it forms part of the research direction 
 process. After my PhD, I would want to work with one of our industrial partners in their R&D department and a few years later, join a 2-year fellowship that will give me the opportunity to use my research skills
